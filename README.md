@@ -1,4 +1,4 @@
-# 𝙍𝙮𝙠𝙚𝙧𝙭🚩
+# hant x🇧🇷
 
 ### iOS FF Glitches + iPA Files
 
